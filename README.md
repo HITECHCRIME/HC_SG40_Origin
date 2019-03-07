@@ -20,12 +20,12 @@ keeping us
 my mind has dual tags
 
 call me a moth - with no reason to die
-flying to fire - why can't you see, oh right
+flying to fire - why can't you see my eyes (oh right)
 shining in a different spectrum of light
 blink and i'm gone, i wasn't a lie
 i was apart
 i was so distant
-too much involved in your meddling business
+too much involved in your meddling business (?)
 not really regret but I was your constant
 you thought i was a threat
 
