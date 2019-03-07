@@ -14,9 +14,9 @@ biased to core
 
 such a gravitas
 your ideas no internal origin
-but you put all that effort into spreading them
+but you pull all that effort into spreading them
 think once not twice and resubscribe
-keeping us
+keeping us (alive)
 my mind has dual tags
 
 call me a moth - with no reason to die
