@@ -19,6 +19,13 @@ think once not twice and resubscribe
 keeping us
 my mind has dual tags
 
+call me a moth, flying to my light spectrum
+into the depths of the night i roll
+what else do you want, more?
+naah, always wanted the whole
+can't won't shouldn't so piss off
+blink and i'm gone
+
 ANALYSE THE VERSE PROGRESSION:
 
 Bitch, I'm dead, bitch, I'm dead, I feel like like I'm fucking dead
