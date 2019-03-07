@@ -19,12 +19,25 @@ think once not twice and resubscribe
 keeping us
 my mind has dual tags
 
-call me a moth, flying to my light spectrum
+call me a moth - with no reason to die
+flying to fire, why can't you see, oh right
+shining in a different spectrum of light
+blink and i'm gone but i wasn't a lie
+i was apart
+i was so distant
+too much involved in your meddling business
+not really regret but I was your constant
+you thought i was a threat
+
+
+
 into the depths of the night i roll
 what else do you want, more?
-naah, always wanted the whole
-can't won't shouldn't so piss off
-blink and i'm gone
+naah, you always wanted the whole
+i can't or i shouldn't and i won't - so piss off
+
+
+
 
 ANALYSE THE VERSE PROGRESSION:
 
