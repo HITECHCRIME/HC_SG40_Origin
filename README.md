@@ -1,10 +1,26 @@
-# HC_SG40_Origin
+(cover) ![](57175019_319474918741616_8502199518755923887_n.jpg)
+
+# MOTHNODE_ Origin
+
+**Listen now:** x
+
+## Project Data
+
+Description.
 
 [FREE] Dark Aggressive Ghostemane x Pouya Type Beat 'MUSTANG' Booming Trap Type Beat | Retnik Beats
 https://www.youtube.com/watch?v=9gOLhJ4s2dg
 
 Slow song (like Observe / omen)
 
+
+**Title:** x / **Featuring:** x
+
+**Production:** x / **Lyrics:** x
+
+## Lyrics
+
+```
 such a gravitas 5
 your ideas biased 5
 no internal origin 5
@@ -20,11 +36,31 @@ your ideas no internal origin
 but you pull all that effort into spreading them
 think once not twice and resubscribe
 keeping us (alive)
+my mind has dual tags yeah
+
+such a gravitas 5   ///
+your ideas biased 5
+no internal origin 5
+think once
+
+such a gravitas
+your ideas x x 
+inner origin(s)
+biased to core
+
+such a gravitas
+your ideas no eternal origin
+but you pull all that effort into spreading them
+think once not twice and resubscribe
+keeping us (alive)
 my mind has dual tags
 
+```
+
+## Music Video
 
 
-
+## Notes
 
 
 ANALYSE THE VERSE PROGRESSION:
